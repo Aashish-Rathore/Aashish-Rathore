@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **aashishrathore1309@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1Z1ENx_KWsaebh9UJ1Sr4c-k87wJzDHUW/view?usp=drive_link](https://drive.google.com/file/d/1Z1ENx_KWsaebh9UJ1Sr4c-k87wJzDHUW/view?usp=drive_link)
+- 📄 Know about my experiences https://drive.google.com/file/d/11Wg7mxT25JCyF4QZxJ4XMpQGrWSU_2bS/view?usp=drive_link
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
